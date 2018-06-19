@@ -1,0 +1,1 @@
+Carol and Bob are working on Bob's pc on the blob feature.  nothing else to add at this time. 
